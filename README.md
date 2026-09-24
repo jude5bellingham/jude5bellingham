@@ -8,5 +8,5 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31tpjc3ahxxo4ftke53fnvsiggc4&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=b1714e&bar_color_cover=false">
   </a>
 </p>
-updt 17.09= WORKING ON A STRAWPAGE!!! + gonna update the readme.md with more info! <3 (luka for forgiveness)
-<p align="center"><img src="https://files.catbox.moe/xrljz6.gif" height="250px"/></p>
+updt 23.09= lwk im a lazy ass and i havent done the strawpage, my apologies i will finish it today :(
+<p align="center"><img src="https://files.catbox.moe/vffqni.gif" height="250px"/></p>
